@@ -35,7 +35,7 @@ I'm always eager to learn and stay updated with the latest technologies. Current
 
 ## 📫 Let's Connect
 
-- Email: ssachin3279@hwdsb.on.ca
+- Email: Arorasanchit0123@gmail.com
 
 ## 🤝 Open to Collaboration
 
